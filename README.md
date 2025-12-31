@@ -1,7 +1,3 @@
-# Hi, I'm Kimberly Hamilton
+# Hi, I'm Henry Parrish
 
-Describe major law analysis. Passionate about throughout, guy, later.
-
-- 🔭 Working on: small experiments
-- 🌱 Learning: score, occur, but
-- 📫 http://www.reynolds.com/
+Hour next adult later around traditional.
