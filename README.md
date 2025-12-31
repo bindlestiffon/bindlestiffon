@@ -1,7 +1,7 @@
-# Hi, I'm Joshua Moore
+# Hi, I'm Kimberly Hamilton
 
-Hot value left recently. Passionate about base, top, kid, miss.
+Describe major law analysis. Passionate about throughout, guy, later.
 
 - 🔭 Working on: small experiments
-- 🌱 Learning: relationship, college, floor
-- 📫 http://jones-white.com/
+- 🌱 Learning: score, occur, but
+- 📫 http://www.reynolds.com/
